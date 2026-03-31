@@ -1,1 +1,1 @@
-# MC.github.io
+# theity.github.io
